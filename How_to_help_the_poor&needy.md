@@ -3,14 +3,19 @@
 2. But do not know how to find and give and stay anonymous 
 3. Yet certainly wanted know where and how the money is spent and used for Kingdom purposes 
 
-# How we operate to accompish Kingdom Values (Principles) & Purposes
+# Who we are 
+1. GPN volentrers, please refer vision and mission statements here http://globalprayernetwork.co/about.php
+2. Team that prays together and stays together for the work of the ministry
+3. Willing the Serve 
+
+# How we operate to accompish Kingdom values (principles) & purposes
 1. All the helpers are volenteers and use their talents to serve the Master
-2. All of volenteers are Stewards of time, talents and Resouces  
+2. All of volenteers are stewards of time, talents and resouces  
 3. 100% of your money is used for the cause that you wanted to use
 
 # How to Give and Invest in Eternal Cause
 1. Please decide which cause you would like to contibute 
-2. Send the offering to GPN and sent a note to the email <srilanka_support_the_poor@gpn.net>
+2. Send the offering to GPN and then sent a note to the following email <srilanka_support_the_poor@gpn.net>
 3. Team will provide the receipts with details of how and where spent report 
 
 # Keep it simple
