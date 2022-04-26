@@ -5,8 +5,8 @@
 
 # Who we are 
 1. GPN volunteers; please refer to the vision and mission statements here http://globalprayernetwork.co/about.php
-2. Team that prays together and stays together for the work of the ministry
-3. Willing the Serve 
+2. We are a team that prays together and stays together for the work of the ministry
+3. Willing to serve 
 
 # How we operate to accompish Kingdom values (principles) & purposes
 1. All the helpers are volunteers and use their talents to serve the Master
