@@ -15,7 +15,7 @@
 
 # How to Give and Invest in Eternal Cause
 1. Please refer to the below stated causes. From the short/medium/long term causes please decide the one you would like to support 
-2. Send the offering to GPN and then sent a note to the following email <srilanka_support_the_poor@gpn.net>
+2. Send the offering to GPN and then sent a note to the following email <gpnsrilankaprojects@gmail.com>
 3. Team will provide the receipts with details of how and where spent report 
 
 # Keep it simple
