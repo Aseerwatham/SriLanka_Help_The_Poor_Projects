@@ -4,7 +4,7 @@
 3. Yet certainly wanted know where and how the money is spent and used for Kingdom purposes 
 
 # Who we are 
-1. GPN volentrers, please refer vision and mission statements here http://globalprayernetwork.co/about.php
+1. GPN volenteers, please refer vision and mission statements here http://globalprayernetwork.co/about.php
 2. Team that prays together and stays together for the work of the ministry
 3. Willing the Serve 
 
