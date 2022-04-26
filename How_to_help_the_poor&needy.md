@@ -29,7 +29,7 @@
 3. Now is the time to help the brethren who needs to taste the love of God
 
 # Short term: 
-1. Dry rations to feed 8-10 poor families. This will feed them for about a week; maybe 2 weeks for a small family.
+1. Dry rations(Rice, oil, soy beans, lentils) feed 8-10 poor families. This will feed them for about a week; maybe 2 weeks for a small family.
 
 
 # Medium and long term: 
