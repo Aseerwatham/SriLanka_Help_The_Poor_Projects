@@ -1,6 +1,6 @@
 # Purpose
 1. You have a heart to give and wanted to give to the right cause
-2. But do not know how to find and give and stay anonymous 
+2. But you do not know how to find and give and stay anonymous 
 3. Yet certainly wanted know where and how the money is spent and used for Kingdom purposes 
 
 # Who we are 
@@ -26,7 +26,7 @@
 # Time to Help ($100 help)
 1. This is the time to help
 2. Today is the time to help
-3. Now is the time to help the brothren who needs to taste the love of God
+3. Now is the time to help the brethren who needs to taste the love of God
 
 # Short term: 
 1. Dry rations to feed 8-10 poor families. This will feed them for about a week; maybe 2 weeks for a small family.
