@@ -19,7 +19,7 @@
 3. Team will provide the receipts with details of how and where spent report 
 
 # Keep it simple
-1. GPN ensures the transaction fee is nil or negligence portion to avail the value; in the case of smaller offerings GPN may cover the transfer cost
+1. GPN ensures that there will be no transaction fee or only a small negligence portion to avail the value; in the case of smaller offerings GPN may cover the transfer cost
 2. Partnered with Blessing Hand ministries to deliver the goods to the needy in a timely manner and overhead cost is covered 
 3. You get to know once it is delivered with receipts, photos and reports
 
