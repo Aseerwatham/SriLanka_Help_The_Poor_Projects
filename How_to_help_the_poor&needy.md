@@ -1,7 +1,7 @@
 # Purpose
 1. You have a heart to give and wanted to give to the right cause
 2. But do not know how to find and give and stay anonymous 
-3. Yet certainely wanted know where and how the money is spent and used for Kingdom purposes 
+3. Yet certainly wanted know where and how the money is spent and used for Kingdom purposes 
 
 # How we operate to accompish Kingdom Values (Principles) & Purposes
 1. All the helpers are volenteers and use their talents to serve the Master
