@@ -4,12 +4,12 @@
 3. Yet certainly wanted know where and how the money is spent and used for Kingdom purposes 
 
 # Who we are 
-1. GPN volunteers, please refer vision and mission statements here http://globalprayernetwork.co/about.php
+1. GPN volunteers, please refer to the vision and mission statements here http://globalprayernetwork.co/about.php
 2. Team that prays together and stays together for the work of the ministry
 3. Willing the Serve 
 
 # How we operate to accompish Kingdom values (principles) & purposes
-1. All the helpers are volenteers and use their talents to serve the Master
+1. All the helpers are volunteers and use their talents to serve the Master
 2. All of volunteers are stewards of time, talents and resouces  
 3. 100% of your money is used for the cause that you wanted to use
 
