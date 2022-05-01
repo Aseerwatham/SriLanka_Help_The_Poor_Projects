@@ -53,3 +53,17 @@
 9. Make an offering to Mother Theresa's care homes ("Missionaries for Charity") where they provide lodging and care to the elderly who have no one to care for them.
 
 10. Provide 2 meals to the care home known as ASSETS, Kilinochchi, where they provide lodging and care to ~30 mentally challenged boys (many of them are sent there by a request from a Judge/Court order).
+
+11. Sponsor a part time Licensed Counsellor to support abused women and children in the upcountry tea estates. Pending confirmation of pricing.
+
+12. Supply MP3 players with Tamil Audio Bibles to those who are unable to read. Pending confirmation of pricing.
+
+13. Support small trades training for single mothers to earn a living. 
+
+14. Help with setting up and maintain a backyard farm.
+
+15. Link for the recent project update to Brother George Vincent for his generous offering for 50 dry rations packages [Update for George Vincent r3.pdf](https://github.com/gevincen/SriLanka_Help_The_Poor_Projects/files/8598348/Update.for.George.Vincent.r3.pdf)
+  - These packages were distributed through the network managed by Blessings Hands: Link to the Blessing Hands March 2022 update: [BH_March Report.pdf]      (https://github.com/gevincen/SriLanka_Help_The_Poor_Projects/files/8598356/BH_March.Report.pdf)
+  - Blessing Hands current network connections in Sri Lanka is listed in this link: [Current Connections.pdf](https://github.com/gevincen/SriLanka_Help_The_Poor_Projects/files/8598362/Current.Connections.pdf)
+
+
